@@ -1,2 +1,0 @@
-# RitProyecto2
-Restaurante
